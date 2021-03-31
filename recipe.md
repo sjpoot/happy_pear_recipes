@@ -5,6 +5,36 @@ chilli, here tortillas are filled with a delicious tomato and bean sauce, and
 baked in the oven and served with a rocking cashew cream - this is a family  
 favourite in our house!  
 
+### Ingredients  
+#### Enchilada Sauce:
+- 1/2 tsp chilli powder
+- 1 tsp garlic powder
+- 1 tsp ground cumin
+- 1/2 tsp onion powder
+- 200 ml tomato puree/ tomato paste
+- 200 ml veg stock
+- Juice 1/2 lime
+- 1/2 tsp salt
+- 1 tsp maple syrup  
+
+#### Filling:  
+- 1 can black beans
+- 1 x 400g jar of roasted red peppers in brine
+- 1 x 200 g can of sweet corn
+- 5-6 medium wholemeal/ corn tortillas  
+
+#### Cashew Cream:  
+- 100g cashew nuts
+- 1/2 juice of lime
+- 12 tbsp non dairy milk
+- 1/2 tsp salt
+- pinch black pepper  
+
+#### Garnish:  
+- 1 avocado
+- 1 red chilli
+- handful of fresh coriander/ cilantro (15g)  
+
 ### Instructions
 
 1. Preheat the oven to 250 degrees
